@@ -12,5 +12,5 @@ EMAIL NEWSLETTER --https://mathumithailavarasu.blogspot.com/2023/09/blog-post.ht
 
 INFOGRAPHIC POST --https://mathumithailavarasu.blogspot.com/2023/09/infographic-design.html
 
-GOOGLE ANALYTICS MEASUREMENT ID--  G-1PXNV0T5TX
+GOOGLE ANALYTICS MEASUREMENT ID--    G-1PXNV0T5TX
 
